@@ -3,7 +3,7 @@
 - 📫 How to reach me: ak8ota@gmail.com
 - 💬 Ask me about Tech, BioTech, Fashion Life Style
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I speak 4 languages ( English, Turkish, Kazakh, Russian, Arabic )
+- ⚡ Fun fact: I speak 5 languages ( English, Turkish, Kazakh, Russian, Arabic )
 
 
 ### Talk with me, I am kinda awesome:
